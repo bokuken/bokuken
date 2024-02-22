@@ -2,7 +2,7 @@
 - 👀 I’m interested in crypto, gamefi..
 - 🌱 I’m currently learning trade
 - 💞️ I’m looking to collaborate on project
-- 📫 How to reach me ...all
+- 📫 How to reach me ...zalo, discord, telegram, X..
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
